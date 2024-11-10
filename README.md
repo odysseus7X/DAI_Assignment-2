@@ -4,4 +4,4 @@ Surendrapal singh Chouhan
 
 23117138
 
-Mechanical engineering
+Mechanical engineering (ME-6)
